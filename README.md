@@ -1,1 +1,1 @@
-# infp
+my mbti
