@@ -1,1 +1,1 @@
-my mbti
+My-mbti
